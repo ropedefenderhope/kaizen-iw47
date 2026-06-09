@@ -1,4 +1,4 @@
-
+Experience kaizen like never before with elite Scripts for kaizen, the #1 Script. Includes infinite resources and speed for unbeatable performance.
 
 
 
